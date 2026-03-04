@@ -1,1 +1,1 @@
-# axelfriberg.com
+# resume.chinghuing.com
